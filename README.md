@@ -23,7 +23,7 @@
   </p>
 </p>
 
-![alt text](https://imgur.com/a/LGz8YiB)
+![alt text](https://i.imgur.com/6aKdWQr.png)
 
 
 
